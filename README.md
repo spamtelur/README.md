@@ -14,7 +14,7 @@ saat ini gue lagi fokus ngoprek:
 
 ### 💬 catch me here
 kalo lo punya tips, mau ngajak kolaborasi, atau cuma mau ngetawain code gue yang berantakan, sok atuh kontak gue:
-* [tambahin link sosmed atau email lo di sini]
+* [@Belum punya akun sosmed sorry guys]
 
 ---
 *"ngoding itu kayak hidup, penuh bug dan gak ada dokumentasi yang bener."*
